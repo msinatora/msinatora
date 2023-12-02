@@ -1,4 +1,4 @@
-## Matheus Sinatora 👋
+## Matheus Sinatora 👨‍💻
 - Meus projetos e status 
 ---
 
